@@ -1,1 +1,1 @@
-# championstrophy-2025.github.io
+# games-66-ez.github.io
